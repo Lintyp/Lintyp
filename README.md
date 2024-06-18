@@ -11,6 +11,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with programação 
 - 💬 Ask me about o que quiser
 - 📫 How to reach me: instagram: guircds12
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 
